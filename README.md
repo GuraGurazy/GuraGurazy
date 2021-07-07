@@ -1,0 +1,5 @@
+- 👋 Hi, I’m Gurazy
+- 👀 I’m interested in making music, programming and animating.
+- 🌱 I’m currently learning how to draw and make fnf mods
+- 💞️ I’m looking to collaborate on the happines for this world by making entertainment
+- 📫 How to reach me, I got a discord Gurazy#6247 or in my discord server http://dsc.gg/bicolordimension
